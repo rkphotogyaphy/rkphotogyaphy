@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rkphotogyaphy
+- 👋 Hi, I’m @rkphotogyapher
 - 👀 I’m interested in photogyaphy
 
 
